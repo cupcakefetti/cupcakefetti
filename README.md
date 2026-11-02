@@ -9,4 +9,4 @@
 <details>
 <summary> 
  💜 </summary><br>
-Home Depot 
+She tryna ignore the fact she isn’t getting better and might as well kick that chair😂😂💀😂💀😂
