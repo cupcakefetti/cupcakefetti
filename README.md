@@ -9,4 +9,4 @@
 <details>
 <summary> 
  💜 </summary><br>
-jigaboo
+please bmf,, most my friends r ignoring me and i want someone to talk to 😢 ..
