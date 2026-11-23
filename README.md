@@ -9,4 +9,4 @@
 <details>
 <summary> 
  💜 </summary><br>
-please bmf,, most my friends r ignoring me and i want someone to talk to 😢 ..
+Sign my atabook to BMF !!!
